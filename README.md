@@ -50,9 +50,31 @@ but at least a stable way to surf Internet or use  Apps.
 the pricing of the service can be found here.	
 	
 
-patreon  [Travel-Tech-Channel](https://www.patreon.com/kuku95454)
+patreon:  [Travel-Tech-Channel](https://www.patreon.com/kuku95454)
 
 Don’t forget to book the service, before traveling to China
+
+**service booking steps:**     
+
+1. book the service above  
+
+2. leave the message to E-Mail
+
+    travel-tech-channel@outlook.com  
+
+    with information:   your E-Mail,      tier basic / plus 
+
+3.  receive E-Mail  response
+
+    confirmation of service activation,  within 12 hour
+
+    and tools installation
+
+
+**note:  anytime can cancel the subscription** 
+
+
+
 
 <br/><br/>
 
