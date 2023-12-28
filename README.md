@@ -1,6 +1,6 @@
-# 5 Minute learn about how to bypass Great Firewall of China.    Internet Access in China
+# 5 Minute learn about how to bypass Great Firewall of China Internet. 100% works
 
-**100% works,  without VPN**
+**Internet Access in China ,  without VPN**
 
 **============= Internet Access problem=============**
 
