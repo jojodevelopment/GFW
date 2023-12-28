@@ -14,6 +14,7 @@ The block measure is called Internet Great Firewall (GFW).
 
 It is pretty inconvenient for people,  who need to travel or work in China for a while ,  and still want to keep contact with outside. 
 
+<br/><br/>
 
 **=============old way, VPN does not work anymore=============**
 
@@ -26,6 +27,7 @@ This can be proven by people currently living in China
 
 incl. free VPNs and commercial ones, like NordVPN,  ExpressVPN, CyberGhost, Surfshark ,  etc.  
 
+<br/><br/>
 
 **=============newest way,  bypass GFW=============**
 
@@ -49,6 +51,7 @@ Travel-Tech-Channel
 
 Don’t forget to book the service, before traveling to China
 
+<br/><br/>
 
 **=============contact=============**
 
