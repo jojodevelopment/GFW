@@ -4,8 +4,6 @@
 
 **============= Internet Access problem=============**
 
-Udemy 上评价还不错的学习视频
-
 While traveling in China,  one of problem for people is Internet Usage. 
 As we all known,  majority of websites and Apps are blocked in China, due to internet censorship in this country.
 something like, WhatsApp / Google / Facebook / Youtube / social media / news portal,  etc. 
