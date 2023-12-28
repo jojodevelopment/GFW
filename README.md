@@ -50,7 +50,7 @@ but at least a stable way to surf Internet or use  Apps.
 the pricing of the service can be found here.	
 	
 
-[Travel-Tech-Channel](https://cutt.ly/nr3dvA5)
+patreon  [Travel-Tech-Channel](https://www.patreon.com/kuku95454)
 
 Don’t forget to book the service, before traveling to China
 
