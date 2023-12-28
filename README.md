@@ -82,7 +82,7 @@ Don’t forget to book the service, before traveling to China
 
 any questions ?  leave the message
 
-travel-tech-channel@outlook.com
+E-Mail:   travel-tech-channel@outlook.com
 
 
 
